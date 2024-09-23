@@ -10,5 +10,3 @@ Você pode entrar em contato comigo 📫
 00001114914332sp@al.educacao.sp.gov.br
 
 #### @Jriic11
-
-![](https://tenor.com/pt-BR/view/sasuke-uchiha-gif-24098960)
